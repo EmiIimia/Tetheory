@@ -1,4 +1,4 @@
-# Theory: Cartethyia as Rover's Recurring Narrative Companion in Wuthering Waves
+# Theory: Cartethyia is one of Rover's Recurring Narrative Companions in Wuthering Waves
 
 
 Based on extensive narrative evidence, thematic resonance, gameplay/design choices, developer patterns, and meta-context surrounding her character, Cartethyia is deliberately positioned by Kuro Games to become a recurring narrative traveling companion for Rover after the conclusion of her immediate story continuation in patch 2.4. The sheer convergence of evidence suggests any other long-term outcome would betray the meticulous setup.
